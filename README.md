@@ -1,1 +1,0 @@
-# SSP_Inteligencia_Artificial_I
